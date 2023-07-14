@@ -1,7 +1,4 @@
 blangkon
-
-kodok 
-
-
 bunglon
+kebo bule
 
